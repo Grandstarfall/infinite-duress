@@ -1,0 +1,1 @@
+kor A nakub🙏🏻
